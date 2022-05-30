@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @mhmdrifkii
-- 👀 I’m interested in bikang
-- 🌱 I’m currently learning visual graphic
-- 💞️ I’m looking to collaborate on saha we
-- 📫 How to reach me gegedor we kaimah
+- 👀 I’m interested to Natasha
+- 🌱 I’m currently learning Visual Graphic
+- 💞️ I’m looking to collaborate on Saha we
+- 📫 How to reach me Gegedor we ka imah
 
 <!---
 mhmdrifkii/mhmdrifkii is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
